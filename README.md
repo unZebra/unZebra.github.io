@@ -1,2 +1,2 @@
-# unZebra.github..io
+# unZebra.github.io
 2026.2.24 maybe...
